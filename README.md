@@ -1,2 +1,2 @@
 # hello-world
-A repository with no sence
+I wish you and me a nice day! Let's have some fun and do business.
